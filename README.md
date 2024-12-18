@@ -1,2 +1,2 @@
 # DrewLev
-Profile informaiton
+Profile information
